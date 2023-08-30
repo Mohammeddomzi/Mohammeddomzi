@@ -5,4 +5,4 @@
 - 🌱 I’m currently learning a lot of things
 - 🤔 I’m looking for help with Game devolopment
 - 💬 Ask me about Unity
-- 📫 How to reach me: on twitter @imdomzi or by mail on imohammedomzi@gmail.com
+- 📫 How to reach me: on X @imdomzi or by mail on imohammedomzi@gmail.com
